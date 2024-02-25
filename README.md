@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @C202044zxy
 - 👀 I’m an undergraduate student in CSU
-- 💞️ I’m looking to collaborate with you
+- 💞️ I’m looking forward to collaborate with you
 
 <!---
 C202044zxy/C202044zxy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
