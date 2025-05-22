@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @C202044zxy
 - 👀 I’m an undergraduate student in CSU
-- 💞️ I’m looking forward to collaborate with you
+- 💞️ I’m looking forward to collaborating with you
 - ✨ 消えたかった 私はもういない
 
 
