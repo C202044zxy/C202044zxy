@@ -1,5 +1,5 @@
-👋 Hi, I’m @C202044zxy  
-👀 I’m an undergraduate student at CSU  
-💼 Currently interning at Tencent  
-✨ 消えたかった 私はもういない  
-😎 Be ready — the Quant journey is just beginning
+👋 Hi, I’m @C202044zxy
+🎓 Undergraduate at Central South University (CSU)
+💼 Previously interviewed at Tencent & WanYan
+🚀 Aiming to land at Optiver this summer
+✨ 消えたかった 私はもういない
