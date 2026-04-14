@@ -2,7 +2,7 @@
 
 🎓 Undergraduate at Central South University (CSU)
 
-💼 Previously interviewed at Tencent & WanYan
+💼 Previously interned at Tencent & WanYan
 
 🚀 Aiming to land at Optiver this summer
 
